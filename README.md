@@ -1,3 +1,3 @@
-## Hii!
+## Yello!
 
-This is my comming soon website. Full site soon :D
+This is my comming soon website. Full site out now at redlucraft.nl
